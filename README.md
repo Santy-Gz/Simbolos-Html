@@ -1,3 +1,3 @@
 # Link de acceso
 
-https://anonimoushacking.github.io/Simbolos-Html/
+https://santy-gz.github.io/Simbolos-Html/
